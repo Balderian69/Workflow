@@ -1,1 +1,1 @@
-IT23 Tere
+IT23 opetaja naidis
